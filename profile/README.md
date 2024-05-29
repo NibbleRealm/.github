@@ -2,6 +2,12 @@
 
 This is Nibble Realm.
 
+[Bandcamp](https://nibblerealm.bandcamp.com/)
+[YouTube](https://www.youtube.com/@nibble_realm)
+[Instagram](https://www.instagram.com/nibble.realm/)
+[Threads](https://www.threads.net/@nibble.realm)
+[Website](https://nibblerealm.com)
+
 <!--
 
 **Here are some ideas to get you started:**
